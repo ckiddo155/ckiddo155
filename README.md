@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...tracking my phone
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...new project with github
-- 📫 How to reach me ...by emailing me by using this email cngetich474@gmail.com
+- 📫 How to reach me ...by emailing me by using this email ckiddo474@gmail.com
 - 😄 Pronouns: ... iam the best in coding
 - ⚡ Fun fact: ...earth rotation is changing speed
 
